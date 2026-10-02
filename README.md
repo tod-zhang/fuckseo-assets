@@ -1,0 +1,1 @@
+# fuckseo-assets
